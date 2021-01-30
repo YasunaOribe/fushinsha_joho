@@ -1,0 +1,1 @@
+# fushinsha_joho
